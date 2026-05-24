@@ -1,2 +1,0 @@
-# usina
-USINA HAMBURGUERIA
